@@ -2,4 +2,4 @@
 ## Design 6
 ### Chris Youngclaus
 
-**This goes _brazy_**
+[Group's Website](https://sites.google.com/stevens.edu/cpe322-group16/home)
